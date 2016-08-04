@@ -1,0 +1,2 @@
+# wangyiyu
+new mamber traing 
